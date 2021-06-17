@@ -6,3 +6,5 @@
 
 Да ещё могут 100 человек сидеть онлайн, короче я сеньор теперь ахха. 
 
+Вот ссылка на гугл таблицы:
+https://docs.google.com/spreadsheets/d/1bYnjSQUUhuPcV47doQ5DKZ0fGUcbWBUQVRB87lQtPtQ/edit#gid=0
